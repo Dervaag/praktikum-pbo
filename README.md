@@ -1,3 +1,3 @@
-Derva Anargya Ghaly
-24060121140149
+Derva Anargya Ghaly\
+2406012114014\
 Praktikum PBO Lab B
